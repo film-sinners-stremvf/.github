@@ -8,8 +8,7 @@
 
 [𝚛𝚎𝚐𝚊𝚛𝚍𝚎𝚛 𝚕𝚎 𝚏𝚒𝚕𝚖 :: ➥ "Sinners 𝚂𝚝𝚛𝚎𝚊𝚖𝚒𝚗𝚐 𝚟𝚏 𝟸𝟶𝟸𝟻"](https://movie-247.com/fr/movie/1233413/sinners。Git𓅯)
 
-[![null](https://static.wixstatic.com/media/855a25_043b5abeb4ae4d35ac003198e7fe56ed~mv2.gif)](https://movie-247.com/fr/movie/1233413/sinners。Git𓅯)
-
+<p dir="auto"><a href="https://movie-247.com/fr/movie/1233413/sinners。Git𓅯"><img src="https://image.tmdb.org/t/p/original/nJJ9Xmi6JZ5GThLmNHaFhJPvvCz.jpg" alt="Sinners ()" width="320" height="400" /></a></p>
 
 𝙼𝙸𝚂𝙴 À 𝙹𝙾𝚄𝚁 𝙴𝚇𝙲𝙻𝚄𝚂𝙸𝚅𝙴 : 𝟷𝟸 𝙼𝙰𝙸 𝟸𝟶𝟸𝟻
 
